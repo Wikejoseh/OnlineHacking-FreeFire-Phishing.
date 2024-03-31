@@ -52,4 +52,12 @@ Telegram channel : https://t.me/anisarino
 
 𝙇𝙫105/ 2100![image](https://github.com/anis-git-VIP/Free-Fire-gem-shipping-is-available/assets/164948826/8c69b388-6ec5-42d0-b742-133f642ba708) 20 $
 
+𝙇𝙫110/ 20000![image](https://github.com/anis-git-VIP/Free-Fire-gem-shipping-is-available/assets/164948826/8c69b388-6ec5-42d0-b742-133f642ba708) 25 $
+
+𝙇𝙫115/ 30000![image](https://github.com/anis-git-VIP/Free-Fire-gem-shipping-is-available/assets/164948826/8c69b388-6ec5-42d0-b742-133f642ba708) 30 $
+
+𝙇𝙫120/ 40000![image](https://github.com/anis-git-VIP/Free-Fire-gem-shipping-is-available/assets/164948826/8c69b388-6ec5-42d0-b742-133f642ba708) 35 $
+
+𝙇𝙫125/ 50000![image](https://github.com/anis-git-VIP/Free-Fire-gem-shipping-is-available/assets/164948826/8c69b388-6ec5-42d0-b742-133f642ba708) 40 $
+
 Telegram channel : https://t.me/anisarino
